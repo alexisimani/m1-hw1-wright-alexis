@@ -8,6 +8,7 @@ Hello, my name is Alexis! I am originally from Charleston, South Carolina and cu
 I got my undergraduate degree in Fashion Merchandising & Retailing. While at Johnson & Wales Unviersity-Charlotte, I had the amazing oppurtunity to study abroad in Europe twice. While in my Freshman year I focused on Business Ethics and Cross-Cultural Communication in Berlin, Germany. Then, during my senior year I focused on Fashion Entreprenuership and Trend Forecasting in London, England.
 
  Fun Facts:
+ 
  My interests include photography, travel, style, and technology!
  
  I have a 1 1/2 year old little Cavapoo named Sisi who is my first pet and have had her since she was 4 months old. 
